@@ -1,1 +1,1 @@
-Just friends having hahaahh
+Just friends having fun hahaahh
